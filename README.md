@@ -28,7 +28,6 @@ https://snapchat.com/t/xfJJ1tnd
 - Me gusta los videojuegos
 - Me gusta el futbol
 - Me gusta la tecnologia
-- no me gusta tener a Boca Juniors de Papá
 
 
 ## 🚀 About Me
